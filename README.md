@@ -1,0 +1,1 @@
+it's the Library/Playlists folder
